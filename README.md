@@ -29,6 +29,10 @@ Result Retweet
 Result SearchPost
 ![resultSearchPost](https://user-images.githubusercontent.com/109408909/217829463-f00b20f7-16a9-440e-a6b0-a9866a8254c1.png)
 
+# LINK DONATE #
+Seiklasnya saja, tidak perlu memaksa jika tidak ada
+https://trakteer.id/hary49
+
 
 # DESCLAIMER #
 Risk / Resiko yang dialami itu tanggung jawab dari masing-masing tiap pengguna
